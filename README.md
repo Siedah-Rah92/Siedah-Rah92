@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: here
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I like to cook and eat delicious food :cooking:
--->
+-->Also boba ice cream is delicious!
